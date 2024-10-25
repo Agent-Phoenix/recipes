@@ -1,6 +1,6 @@
 # Guacamole
 ## Ingredients
-*avocado
-*lime
-*salt
+*avocado £5
+*lime £free
+*salt £20000
 ## Instructions
